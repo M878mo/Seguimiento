@@ -1,0 +1,2 @@
+# Seguimiento
+Ficha informativa
